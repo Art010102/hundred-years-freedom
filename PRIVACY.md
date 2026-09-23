@@ -36,4 +36,4 @@ The game is not directed at children under 13, and it does not knowingly collect
 
 ## Contact
 
-Questions about this policy: [realsamopal@gmail.com](mailto:realsamopal@gmail.com). There is no server-side profile to delete. If a store listing ever shows the wrong description, write to that address.
+Questions about this policy: [inkyringy@gmail.com](mailto:inkyringy@gmail.com). There is no server-side profile to delete. If a store listing ever shows the wrong description, write to that address.

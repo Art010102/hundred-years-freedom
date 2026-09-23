@@ -18,4 +18,4 @@ Twenty errands loop. An officer’s job takes one year off the sentence and cost
 
 The Android app is offline. Progress stays on the device: years left, respect, and which errand you are on. Cell doors open when you press the action button, then shut themselves after two seconds.
 
-Contact: [realsamopal@gmail.com](mailto:realsamopal@gmail.com)
+Contact: [inkyringy@gmail.com](mailto:inkyringy@gmail.com)
